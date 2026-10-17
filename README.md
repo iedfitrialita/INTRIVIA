@@ -16,3 +16,5 @@ karena dari beberapa hal yang dulu terasa asing sekarang sudah mulai saya pahami
 
 #Kesan Pesan untuk Cluster 9
 	Pokoknya orang-orang di cluster 9 tu rame bangett, trus seru banget nget nget ngettttt jugaa.
+#Harapan kuliah
+Harapan  saya selama kuliah adalah saya bisa dengan mudah mengerti ilmu-ilmu yang diberikan oleh dosen di setiap matkul, dan juga selalu bisa berkembang dan mencoba hal-hal yang saya takuti untuk mencoba ketika SMA dulu.
